@@ -16,4 +16,8 @@ Git:
 https://github.com/Jpdl925/DadJokes
 
 
-<strong> Peer review - </strong> 
+<strong> Peer review - 
+Saroeut Sim
+
+It works perfect and I like the added laughter sound that he added. Great Job!
+</strong> 
